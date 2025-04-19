@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-🌱 Technigo-student currently working on my portfolio. (stay tuned!)
-✨ Functionality driven but with a soft spot for pretty design.
-⚡ Fun fact: I love everything dodgeball and represent Sweden!
+🌱 Technigo-student currently working on my portfolio. (stay tuned!)<br>
+✨ Functionality driven but with a soft spot for pretty design.<br>
+⚡ Fun fact: I love everything dodgeball and represent Sweden!<br>
 📫 Reach me here: https://www.instagram.com/oskaralexander/ or here oskarnordin1@gmail.com.
