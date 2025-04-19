@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+## 🌱 Technigo-student currently working on my portfolio (stay tuned!)
+## ⚡ Fun fact: I love everything dodgeball and represent Sweden!
+## 📫 Reach me here: https://www.instagram.com/oskaralexander/
