@@ -17,5 +17,6 @@ Here are some ideas to get you started:
 
 🌱 Technigo-student currently working on my portfolio (stay tuned!).<br>
 ✨ Functionality-driven but with a soft spot for pretty design.<br>
-⚡ Fun fact: I love everything dodgeball and represent Sweden!<br>
 📫 Reach me here: https://www.instagram.com/oskaralexander/ or here oskarnordin1@gmail.com.
+
+⚡ Fun fact: I love everything dodgeball and represent Sweden! 🤾‍♂️<br>
