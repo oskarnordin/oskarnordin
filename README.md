@@ -19,4 +19,4 @@ Here are some ideas to get you started:
 ✨ Functionality-driven but with a soft spot for pretty design.<br>
 📫 Reach me here: https://www.instagram.com/oskaralexander/ or here oskarnordin1@gmail.com.
 
-⚡ Fun fact: I love everything dodgeball and represent Sweden! 🤾‍♂️<br>
+⚡ Fun fact: I love everything dodgeball and represent the Swedish national team! 🤾‍♂️<br>
