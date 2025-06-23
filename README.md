@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-🌱 Technigo-student currently looking for an internship fall 2025<br>
+🌱 Technigo-student currently looking for an internship fall 2025.<br>
 ✨ Functionality-driven but with a soft spot for pretty design.<br>
 📫 Reach me here: https://www.linkedin.com/in/oskar-nordin-908129b6/ or here oskarnordin1@gmail.com.
 
