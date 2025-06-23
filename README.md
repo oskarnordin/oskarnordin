@@ -17,6 +17,6 @@ Here are some ideas to get you started:
 
 🌱 Technigo-student currently looking for an internship fall 2025<br>
 ✨ Functionality-driven but with a soft spot for pretty design.<br>
-📫 Reach me here: https://www.instagram.com/oskaralexander/ or here oskarnordin1@gmail.com.
+📫 Reach me here: https://www.linkedin.com/in/oskar-nordin-908129b6/ or here oskarnordin1@gmail.com.
 
 ⚡ Fun fact: I love everything dodgeball and represent the Swedish national team! 🤾‍♂️<br>
