@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-🌱 Technigo-alumni currently open for new projects!<br>
+🌱 Technigo-alumni.<br>
 ✨ Functionality-driven but with a soft spot for pretty design.<br>
 📫 Reach me here: https://www.linkedin.com/in/oskar-nordin-908129b6/ or here oskarnordin1@gmail.com.
 
