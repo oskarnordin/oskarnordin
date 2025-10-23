@@ -18,5 +18,3 @@ Here are some ideas to get you started:
 🌱 Technigo-alumni.<br>
 ✨ Functionality-driven but with a soft spot for pretty design.<br>
 📫 Reach me here: https://www.linkedin.com/in/oskar-nordin-908129b6/ or here oskarnordin1@gmail.com.
-
-⚡ Fun fact: I love everything dodgeball and represent the Swedish national team! 🤾‍♂️<br>
